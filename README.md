@@ -1,7 +1,12 @@
 # SHEIKH94
 # @page 
 # BRIANNA MIZURA 
+https://www.deviantart.com/aicraftsceo
 
+https://www.mintme.com/token/AICRAFTSCEO
+
+
+0x908f03547d52d4e68bd1533e8bd6461aa572bace
 [![Brianna Mizura](https://img.youtube.com/vi/EVs6rbaQzRQ/0.jpg)](https://youtu.be/EVs6rbaQzRQ?si=0lxWFAjXjIu9p_rJ)
 
 
